@@ -14,11 +14,10 @@ Welcome to ToastySMP! To play on our server, you have to follow the rules below!
 The administrators of ToastySMP are allowed to ban anyone for any reason they wish. If you think your ban is unfair, open a ban appeal. All ban appeals are read by HelveticaToast, so if your ban is truely unfair, you will be unbanned.
 
 ## Unfair Advantages
-Sample Text
+don't cheat lmao - helveticatoast
 
 ## Griefing and Stealing
-Sample Text
-
+Mario Mario, M, M, Mario, Mario Mario.
 ## Chat Disrespect
 Sample Text
 
